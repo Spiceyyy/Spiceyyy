@@ -1,6 +1,6 @@
 ## 👋 Hey, I'm Kevin Bao
 
-I'm a CS & Stats student at McGill University, passionate about Data Analyzing and ML/AI
+I'm a CS & Stats student at McGill University, passionate about Data Analysis and ML/AI
 
 👥 [LinkedIn](https://www.linkedin.com/in/kevin-bao-709a81256/)
 
