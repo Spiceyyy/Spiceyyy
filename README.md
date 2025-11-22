@@ -16,7 +16,7 @@ I'm a CS & Stats student at McGill University, passionate about Data Analyzing a
 
 ⛰️ I love exploring the outdoor
 
-🎧 I enjoy any genre of music
+🎧 I vibe to all music
 
 😴 Power nap >> Caffeine
 
